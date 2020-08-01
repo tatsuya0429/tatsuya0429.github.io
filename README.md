@@ -1,9 +1,9 @@
-## tatsuya0429's Page
+# tatsuya0429's Page
 
-### About Me
+## About Me
 
-### Education
+## Education
 
-### Others
+## Others
 
 
