@@ -1,4 +1,4 @@
-## tatsuya0429's GitHub Pages
+## tatsuya0429's Page
 
 ### About Me
 
